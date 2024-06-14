@@ -1,0 +1,1 @@
+# mobilyac-otomasoynu
